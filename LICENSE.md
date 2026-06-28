@@ -1,4 +1,4 @@
-# 
+# Actualizado Revo Uninstaller extensiones para Mac OS | Oficial Revo Uninstaller extensiones para PC Windows. Con indexación de archivos y limpieza de archivos basura — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
